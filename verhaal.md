@@ -24,6 +24,4 @@ De vraag rijst: kan technologie de wereld redden, of zijn het de mensen erachter
 2. Een sabotagepoging die het project bijna vernietigt.  
 3. Een internationale conferentie waar Emma haar technologie onthult.  
 
-## Motieven en Symboliek
-- **Motief:** Licht als symbool van kennis en vooruitgang.  
-- **Symboliek:** De batterij vertegenwoordigt menselijke veerkracht en aanpassingsvermogen.
+Windenergie en zonne-energie zijn steeds goedkoper en toegankelijker geworden voor huishoudens.
