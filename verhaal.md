@@ -27,3 +27,5 @@ De vraag rijst: kan technologie de wereld redden, of zijn het de mensen erachter
 ## Motieven en Symboliek
 - **Motief:** Licht als symbool van kennis en vooruitgang.  
 - **Symboliek:** De batterij vertegenwoordigt menselijke veerkracht en aanpassingsvermogen.
+
+Steeds meer mensen ontdekken de voordelen van duurzame energie in hun dagelijks leven. Van zonnepanelen op daken tot elektrische voertuigen en energiebesparende apparaten, kleine veranderingen kunnen samen een grote impact hebben. Door bewuste keuzes te maken, kunnen we niet alleen de uitstoot van broeikasgassen verminderen, maar ook een stabielere en schonere energievoorziening voor de toekomst creëren.
